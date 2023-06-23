@@ -6,7 +6,7 @@
 - 📫 How to reach me: ale.cordoba.p@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I can't drink beer 🍺
-- ✨ Follow me for more: [here](https://www.linkedin.com/in/alejandracordoba/ "Linkedin")
+- ✨ Follow me for more: [here](https://www.linkedin.com/in/lalailamas/ "Linkedin")
 
 #### Skills so far
 

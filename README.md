@@ -3,9 +3,9 @@
 ## Holaaaa hi there 👋
 #### I'm lalailamas✨ a daughter of two developers, probably mother of one. This career gave me the balance I needed in my life.
 
-- 📫 How to reach me: ale.cordoba.p@gmail.com
-- 😄 Pronouns: she/her
-- ⚡ Fun fact: I can't drink beer 🍺
+- 👌 Interested in: open source projects
+- 👉 Soft skills at work: positivism and initiative, I am not afraid to propose and question.
+- ⚡ Fun fact: I worked as a manager in a brewery and I can't drink beer 🍺
 - ✨ Follow me for more: [here](https://www.linkedin.com/in/lalailamas/ "Linkedin")
 
 #### Skills so far
